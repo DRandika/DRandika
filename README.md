@@ -1,5 +1,5 @@
 # 💫 About Me:
-👾👾👾
+I'm currently a student👾👾👾
 
 
 ## 🌐 Socials:
